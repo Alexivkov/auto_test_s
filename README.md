@@ -1,1 +1,1 @@
-# auto_test_s
+https://stepik.org/course/575/syllabus
